@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Data Science**
 
-- 💬 Ask me about **DATA  , Life , Trek , Hiking , Mountains <3**
+- 💬 Ask me about ** Data  , Life , Trek , Hiking , Mountains <3**
 
 - 📫 How to reach me **soniamitesh611@gmail.com**
 
